@@ -1,1 +1,1 @@
-# [点此进行安全检查](https://chainsx.github.io/forty-jekyll-theme)
+# "点此进行安全检查"---------我想不出比这个更好的理由了-_-#
